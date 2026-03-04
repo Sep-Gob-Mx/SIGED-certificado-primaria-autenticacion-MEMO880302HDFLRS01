@@ -1,0 +1,2 @@
+# SIGED-certificado-primaria-autenticacion-MEMO880302HDFLRS01
+MEMO880302HDFLRS01
